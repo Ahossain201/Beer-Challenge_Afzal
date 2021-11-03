@@ -1,1 +1,1 @@
-# Beer-Challenge_Afzal
+# Beer-Challenge Afzal
